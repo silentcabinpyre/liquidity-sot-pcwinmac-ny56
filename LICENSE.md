@@ -1,4 +1,4 @@
-# 
+# Exclusivo liquidity sniper bot herramientas para Mac OS | Nativo liquidity sniper bot herramientas para PC Windows. Con escaneo de pools de liquidez y escaneo de arbitraje — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
